@@ -1,5 +1,6 @@
-<img width="1036" height="581" alt="download - 2026-05-19T154217 168" src="https://github.com/user-attachments/assets/1d1a6d0b-3792-446d-b756-767ba9fcc49d" />
-  
+<img width="1036" height="481" alt="download - 2026-05-19T154217 168" src="https://github.com/user-attachments/assets/32bbe6d5-a695-447b-b7ad-e321b3acc83c" />
+
+
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Autobots.&style=for-the-badge)
 
 

@@ -25,7 +25,7 @@
 
 
 ㅤㅤㅤㅤ  
-ㅤㅤㅤㅤ   ୨୧  　　   ⊹ 　　      [PRONOUNS.CC](https://pronouns.cc/@LH44)  
+ㅤㅤㅤㅤ   ୨୧  　　   ⊹ 　　      [PRONOUNS.CC](https://pronouns.cc/@CL16)  
 
 &ensp;&ensp;&ensp;
 
@@ -39,7 +39,7 @@
 
 
 ㅤㅤㅤㅤ  
-ㅤㅤㅤㅤ   ୨୧  　　   ⊹ 　　       [GUNS.LOL](https://guns.lol/lestappen)
+ㅤㅤㅤㅤ   ୨୧  　　   ⊹ 　　       [GUNS.LOL](https://guns.lol/16lec)
 
 
  &ensp;&ensp;&ensp;
